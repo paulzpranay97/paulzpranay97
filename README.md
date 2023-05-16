@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **paulpranay1997@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Mic0WdG3D3qynvb35TsutiFQTMH3s4GS/view?usp=share_link](https://drive.google.com/file/d/1Mic0WdG3D3qynvb35TsutiFQTMH3s4GS/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Mic0WdG3D3qynvb35TsutiFQTMH3s4GS/view?usp=share_link](https://drive.google.com/file/d/13PVcxf4Z0ZNhWnVJjr9S2QG4RevvMCIF/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
