@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Pug Html**
 
-- 👨‍💻 Visit my portfolio here **https://paulzpranay97.github.io/**
+- 👨‍💻 Visit my portfolio here **https://pranaypaulportfolio.netlify.app/**
 
 - 💬 Ask me about **Nodejs,Expressjs,MongoDB,javascript,My Sql,AWS**
 
