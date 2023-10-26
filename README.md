@@ -15,7 +15,7 @@
 
 - 📫 How to reach me
 - **paulpranay1997@gmail.com**
-- **https://linkedin.com/in/pranay-paul-6a5220257**
+- LinkedIn: <a href="https://linkedin.com/in/pranay-paul-6a5220257" target="_blank" rel="noreferrer">LinkedIn <img src="https://image.freepik.com/free-icon/linkedin_318-84940.jpg" alt="LinkedIn Icon" width="16" height="16" /></a>
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1mowLfSaUiXXi_zfb3rmrNQ2KiS7y0QK7?usp=sharing](https://drive.google.com/drive/folders/1mowLfSaUiXXi_zfb3rmrNQ2KiS7y0QK7?usp=sharing)
 
