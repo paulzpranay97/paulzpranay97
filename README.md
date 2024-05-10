@@ -17,7 +17,7 @@
 - **paulpranay1997@gmail.com**
 - <a href="https://linkedin.com/in/pranay-paul-6a5220257" target="_blank" rel="noreferrer">LinkedIn <img src="https://image.freepik.com/free-icon/linkedin_318-84940.jpg" alt="LinkedIn Icon" width="16" height="16" /></a>
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1mowLfSaUiXXi_zfb3rmrNQ2KiS7y0QK7?usp=sharing](https://drive.google.com/drive/folders/1mowLfSaUiXXi_zfb3rmrNQ2KiS7y0QK7?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/19WndZ_keOhosncN1NaOulGKGZnn2jt-K/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
